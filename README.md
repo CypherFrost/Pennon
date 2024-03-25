@@ -1,0 +1,1 @@
+vlag, flamur, علم, դրոշ, bandera, сцяг, পতাকা, zastava, флаг, bandera, 旗, 旗, zastava, vlajka, vlag, lipp, lippu, drapeau, დროშა, σημαία, דגל, झंडा, zászló, fáni, bendera, bandiera, 旗, ту, 기, karogs, vėliava, знаме, bendera, പതാക, туг, پرچم, bandera, bandeira, steag, флаг, застава, vlajka, zastava, bandera, bayrak
